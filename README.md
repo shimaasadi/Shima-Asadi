@@ -43,5 +43,4 @@ I believe meaningful innovation comes from curiosity, persistence, and a deep un
 Connect With Me
 - Email: shimaasadi.org3@gmail.com
 - LinkedIn: linkedin.com/in/shima-asadii
-- Telegram: @shima_asadii
-
+- Telegram: @shima_asadi
