@@ -45,4 +45,4 @@ Connect With Me
 - LinkedIn: linkedin.com/in/shima-asadii
 - Telegram: @shima_asadii
 
-📨 Telegram: @shima_asadii
+📨
